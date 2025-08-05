@@ -1,5 +1,5 @@
 <div id="header" align="center">
-  <img src="https://media1.giphy.com/media/v1.Y2lkPTc5MGI3NjExNWszaXVmYXZiZmdqYzV2MmM4NWZoeTlja3kxcWo2dnM5bmw3amh6aCZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/wOBl1Ki9uesJWj2WFc/giphy.gif" width="700"/>
+  <img src="https://media1.giphy.com/media/v1.Y2lkPTc5MGI3NjExNGI2MXJpcnp2OXhmb2I2d3ZxY2hxMDVyanp3djh0Zjd5cjhscWczciZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/qmxQXs3mxC6iwft9kj/giphy.gif" width="700""/>
 </div>
 
 <div id="header" align="center">
@@ -32,10 +32,6 @@
 
 <div id="header" align="center">
 ————————————————————————————————————————————
-
-<div id="header" align="center">
-<img src="https://media1.giphy.com/media/v1.Y2lkPTc5MGI3NjExNGI2MXJpcnp2OXhmb2I2d3ZxY2hxMDVyanp3djh0Zjd5cjhscWczciZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/qmxQXs3mxC6iwft9kj/giphy.gif" width="700"/>
-</div>
 <div id="header" align="center">
 𝗬𝗢𝗨 𝗛𝗔𝗩𝗘 𝗕𝗘𝗘𝗡 𝗡𝗢𝗧𝗜𝗖𝗘𝗗. 👀
 <div id="header" align="center">
