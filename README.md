@@ -22,7 +22,7 @@
 ## FANDOMS. 👀
 <div id="header" align="left">
 
-**main fandom:** jujutsu kaisen, honkai: star rail, monster x mediator, silent hill, call of duty.
+**main fandom:** jujutsu kaisen, honkai: star rail, silent hill, call of duty, monster x mediator.
 
 <div id="header" align="left">
 
