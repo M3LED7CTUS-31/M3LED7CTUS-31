@@ -20,15 +20,16 @@
 ## FANDOMS. 👀
 main fandom: **jujutsu kaisen**, **honkai: star rail**, **monster x mediator**, **silent hill**, **call of duty**.
 
-<div id="header" align="center"> games / visual novella: genshin impact, zenless zone zero, devil may cry, resident evil, blade & soul, cookie run: kingdom, mogeko castle, wadanohara and the great blue sea, helltaker, needy streamer overload, forsaken, jujutsu kaisen: phantom parade;
-  
-<div id="header" align="center"> anime: tokyo revengers, shiguang dailiren, fate, panties and stockings with garterbelt, madoka magica, chainsaw man, kill la kill;
-  
-<div id="header" align="center"> manga / manhwa: killeo baedeulo, gokurakugai sanbandori, how to fight, windbreaker, jeonjijeog dogja sijeom, tengoku daimakyou, codename: anastasia;
+<ins>games/visual novella:<ins> 
+
+genshin impact, zenless zone zero, devil may cry, resident evil, blade & soul, cookie run: kingdom, mogeko castle, wadanohara and the great blue sea, helltaker, needy streamer overload, forsaken, jujutsu kaisen: phantom parade;
+
+<ins>anime & manga:<ins>
+
+tokyo revengers, shiguang dailiren, fate, panties and stockings with garterbelt, madoka magica, chainsaw man, kill la kill; killeo baedeulo, gokurakugai sanbandori, how to fight, windbreaker, jeonjijeog dogja sijeom, tengoku daimakyou, codename: anastasia;
 
 ## DO NOT INTERACT, IT YOU:. 👀
-> **[ WARNING! ]**
-все, что связано с филиями, ж2водерство, г2мофобия, эйбилизм (иногда шучу про них), инц2ст (исключение: сукуита), мизогиния, анти-селфшипперы/осканонщики, антишипперы, н2бинарные персоны, канон-в2йны, сексизм, р2сизм, романтизация псих.расстройств, намеренный триггер, доксеры/сватеры/рейдеры, люди с прошлого (бывают редкие исключения), обесценивание чужих проблем, вкусов, предпочтений людей, поддержка трансов, ярые фанаты сукуфуш и сукуго.
+не поддерживаю все, что связано с филиями, ж2водерство, г2моф7биея, эйбилизм (иногда шучу про них), инц2ст (исключение: сукуита), мизогиния, анти-селфшипперы/осканонщики, антишипперы, н2бинарные персоны, канон-в2йны, сексизм, р2сизм, романтизация псих.расстройств, намеренный триггер, доксеры/сватеры/рейдеры, люди с прошлого (бывают редкие исключения), обесценивание чужих проблем, вкусов, предпочтений людей, поддержка трансов, ярые фанаты сукуфуш и сукуго.
 
 касательно сукуфуш и сукуго: не имею желания контактировать с такими особами, не упоминайте при мне в любых проявлениях. (я не прям против, но НЕЖЕЛАТЕЛЬНО.)
 
