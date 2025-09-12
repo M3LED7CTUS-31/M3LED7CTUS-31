@@ -18,9 +18,11 @@
 
 
 ## FANDOMS. 👀
-основные фд: **jujutsu kaisen**, **honkai: star rail**, **monster x mediator**, **silent hill**, **call of duty**.
+main fandom: **jujutsu kaisen**, **honkai: star rail**, **monster x mediator**, **silent hill**, **call of duty**.
 
-genshin impact, zenless zone zero, devil may cry, resident evil, blade & soul, cookie run: kingdom, tengoku daimakyou, tokyo revengers, killeo baedeulo, gokurakugai sanbandori, how to fight, windbreaker, jeonjijeog dogja sijeom, shiguang dailiren, fate, panties and stockings with garterbelt, madoka magica, fate, chainsaw man, mogeko castle, wadanohara and the great blue sea, helltaker, needy streamer overdose, helluva boss, forsaken.
+games: genshin impact, zenless zone zero, devil may cry, resident evil, blade & soul, cookie run: kingdom, mogeko castle, wadanohara and the great blue sea, helltaker, needy streamer overdose, forsaken, jujutsu kaisen: phantom parade;
+anime: tokyo revengers, shiguang dailiren, fate, panties and stockings with garterbelt, madoka magica, chainsaw man;
+manga / manhwa: killeo baedeulo, gokurakugai sanbandori, how to fight, windbreaker, jeonjijeog dogja sijeom, tengoku daimakyou, codename: anastasia;
 
 ## DO NOT INTERACT, IT YOU:. 👀
 > **[ WARNING! ]**
