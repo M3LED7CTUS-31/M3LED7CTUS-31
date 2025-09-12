@@ -9,7 +9,9 @@
 <div id="header" align="center">
 
 добро пожаловать в цифровое пространство — здесь хранятся данные, но будьте осторожны: не все тайны стоит раскрывать. здесь я буду рассказывать о себе. меня зовут - <ins>мару / маледиктус / акс или же 31</ins>, называйте как вам удобнее, мне без разницы. я - асексуальный аромантик.
-  
+
+<div id="header" align="left">
+
 **ВАЖНО!!** если вы хотите со мной познакомиться поближе, то помните, что в плане общения я **<ins>не очень общительный</ins>** и как бы ни старался социализироваться, мне сложно что-то первым начинать или как-то закончить, поддерживать разговор, редко завожу дружбу. а если вы все-таки хотите поговорить со мной на разные темы - то окей, но учите, я могу отвечать медленно и кратковременно, а может проигнорю ваше сообщение (пожалуйста, не распускайте свои нюни если я не отвечаю на ваши сообщения так как я могу быть занятым человеком и у меня могут нет времени на общение. поэтому наберитесь терпения когда у меня появится желание пообщаться).
 
 **for foreign players there is more detailed information in english** - https://maledictus-31.carrd.co/
@@ -18,14 +20,16 @@
 
 
 ## FANDOMS. 👀
-main fandom: **jujutsu kaisen**, **honkai: star rail**, **monster x mediator**, **silent hill**, **call of duty**.
+<div id="header" align="left">
 
-<ins>games/visual novella:<ins> 
+**main fandom:** jujutsu kaisen, honkai: star rail, monster x mediator, silent hill, call of duty.
 
+<div id="header" align="left">
+
+**games/visual novella:**
 genshin impact, zenless zone zero, devil may cry, resident evil, blade & soul, cookie run: kingdom, mogeko castle, wadanohara and the great blue sea, helltaker, needy streamer overload, forsaken, jujutsu kaisen: phantom parade;
 
-<ins>anime & manga:<ins>
-
+**anime & manga:**
 tokyo revengers, shiguang dailiren, fate, panties and stockings with garterbelt, madoka magica, chainsaw man, kill la kill; killeo baedeulo, gokurakugai sanbandori, how to fight, windbreaker, jeonjijeog dogja sijeom, tengoku daimakyou, codename: anastasia;
 
 ## DO NOT INTERACT, IT YOU:. 👀
