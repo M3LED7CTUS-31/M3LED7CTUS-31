@@ -27,7 +27,7 @@
 <div id="header" align="left">
 
 **games/visual novella:**
-genshin impact, zenless zone zero, devil may cry, resident evil, blade & soul, cookie run: kingdom, mogeko castle, wadanohara and the great blue sea, helltaker, needy streamer overload, forsaken, jujutsu kaisen: phantom parade;
+genshin impact, zenless zone zero, devil may cry, resident evil, blade & soul, cookie run: kingdom, mogeko castle, undertale and au's, wadanohara and the great blue sea, helltaker, needy streamer overload, forsaken, jujutsu kaisen: phantom parade;
 
 **anime & manga:**
 tokyo revengers, shiguang dailiren, fate, panties and stockings with garterbelt, madoka magica, chainsaw man, kill la kill; killeo baedeulo, gokurakugai sanbandori, how to fight, windbreaker, jeonjijeog dogja sijeom, tengoku daimakyou, codename: anastasia;
