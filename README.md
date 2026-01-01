@@ -8,7 +8,7 @@
 ————————————————————————————————————————————
 <div id="header" align="left">
 
-добро пожаловать в цифровое пространство — здесь хранятся данные, но будьте осторожны: не все тайны стоит раскрывать. здесь я буду рассказывать о себе. меня зовут - <ins>мару / маледиктус / акс или же 31</ins>, называйте как вам удобнее, мне без разницы. я акексуальный аромантик.
+добро пожаловать в цифровое пространство — здесь хранятся данные, но будьте осторожны: не все тайны стоит раскрывать. здесь я буду рассказывать о себе. меня зовут - <ins>мару / маледиктус / фай1</ins>, называйте как вам удобнее, мне без разницы. я акексуальный аромантик.
 
 <div id="header" align="left">
 
@@ -22,12 +22,12 @@
 ## FANDOMS. 👀
 <div id="header" align="left">
 
-**main fandom:** jujutsu kaisen, honkai: star rail, silent hill, call of duty, monster x mediator.
+**main fandom:** jujutsu kaisen, honkai: star rail.
 
 <div id="header" align="left">
 
-**games/visual novella:**
-genshin impact, zenless zone zero, devil may cry, resident evil, blade & soul, cookie run: kingdom, mogeko castle, undertale and au's, wadanohara and the great blue sea, helltaker, needy streamer overload, forsaken, jujutsu kaisen: phantom parade;
+**games/visual novella/other:**
+genshin impact, zenless zone zero, devil may cry, resident evil, blade & soul, call of duty, monster & mediator, dead by daylight, arknights, umamusume, cookie run: kingdom, mogeko castle, undertale and au's, wadanohara and the great blue sea, helltaker, needy streamer overload, nagai go, analog horror, hayao miyazaki, doki doki literature club, silent hill, jujutsu kaisen: phantom parade;
 
 **anime & manga:**
 tokyo revengers, shiguang dailiren, fate, panties and stockings with garterbelt, madoka magica, chainsaw man, kill la kill; killeo baedeulo, gokurakugai sanbandori, how to fight, windbreaker, jeonjijeog dogja sijeom, tengoku daimakyou, codename: anastasia;
