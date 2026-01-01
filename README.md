@@ -26,7 +26,7 @@
 
 <div id="header" align="left">
 
-**games/visual novella/other:**
+**games/visual novella & other:**
 genshin impact, zenless zone zero, devil may cry, resident evil, blade & soul, call of duty, monster & mediator, dead by daylight, arknights, umamusume, cookie run: kingdom, mogeko castle, undertale and au's, wadanohara and the great blue sea, helltaker, needy streamer overload, nagai go, analog horror, hayao miyazaki, doki doki literature club, silent hill, jujutsu kaisen: phantom parade;
 
 **anime & manga:**
