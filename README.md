@@ -32,6 +32,9 @@ genshin impact, zenless zone zero, devil may cry, resident evil, blade & soul, c
 **anime & manga:**
 tokyo revengers, shiguang dailiren, fate, panties and stockings with garterbelt, madoka magica, chainsaw man, kill la kill; killeo baedeulo, gokurakugai sanbandori, how to fight, windbreaker, jeonjijeog dogja sijeom, tengoku daimakyou, codename: anastasia;
 
+**i support ships:**
+jjk: sukuita, sukume, fushiita;; hsr: phaistelle, phaidei, castordei, sampkle;; gi: chiscara, scarabedo, ew: tordedd (and maybe I'll remember more.)
+
 ## DO NOT INTERACT, IT YOU:. 👀
 <div id="header" align="left">
 ⤷ все, что связано с филиями, жив7дерство, г2м7фобия, ин7цест (исключнеие: сукуита = сукуна/итадори), романтизация псих.расстройств, обесценивание чужих проблем, вкусов, предпочтений людей и т.д., намеренный триггер.
