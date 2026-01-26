@@ -1,9 +1,9 @@
 <div id="header" align="center">
-<img src="https://media4.giphy.com/media/v1.Y2lkPTc5MGI3NjExZHB0Nms5bThlNmU0dzNoYWo2YWRpaWplMTM3OHZvNjhycnJjcmM4cyZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/168jKVPL6TFk03WVo2/giphy.gif" width="700"/>
+<img src="https://media4.giphy.com/media/v1.Y2lkPTc5MGI3NjExOHVveHJycTkzcDVqZzgzdWMwc21reTM0N211M3h5NGxwZjI5bjdsbCZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/kpgJ3mAFIB4vKYqUsx/giphy.gif" width="700"/>
 <div id="header" align="center">
 ————————————————————————————————————————————
 <div id="header" align="center">
-𝗻𝗲𝘄 𝘀𝘁𝗮𝘁𝗶𝗼𝗻 𝗶𝘀 . . . 𝗱𝗮𝗿𝗸 𝗶𝗻𝘁𝗲𝗿𝗻𝗲𝘁. 𝘆𝗼𝘂 𝗵𝗮𝘃𝗲 𝗯𝗲𝗲𝗻 𝘄𝗮𝗿𝗻𝗲𝗱. 💬
+𝗻𝗲𝘄 𝘀𝘁𝗮𝘁𝗶𝗼𝗻 𝗶𝘀 . . . 𝗱𝗮𝗿𝗸 𝗶𝗻𝘁𝗲𝗿𝗻𝗲𝘁. 𝘆𝗼𝘂 𝗵𝗮𝘃𝗲 𝗯𝗲𝗲𝗻 𝘄𝗮𝗿𝗻𝗲𝗱. 🩸
 <div id="header" align="center">
 ————————————————————————————————————————————
 <div id="header" align="left">
@@ -19,33 +19,30 @@
 семейное положение: в активном поиске.
 
 
-## FANDOMS. 👀
+## FANDOMS. 🌹
 <div id="header" align="left">
 
-**main fandom:** jujutsu kaisen, honkai: star rail.
+**main fandom:** jujutsu kaisen, eddsworld, honkai: star rail.
 
 <div id="header" align="left">
 
 **games/visual novella & other:**
-genshin impact, zenless zone zero, devil may cry, resident evil, blade & soul, call of duty, monster & mediator, dead by daylight, arknights, umamusume, cookie run: kingdom, mogeko castle, undertale and au's, wadanohara and the great blue sea, helltaker, needy streamer overload, nagai go, analog horror, hayao miyazaki, doki doki literature club, silent hill, jujutsu kaisen: phantom parade;
+genshin impact, zenless zone zero, arknights: endfield, silent hill, call of duty, needy streamer overdose, doki doki literature club, dead by daylight, umamusume, cookie run: kingdoom, resident evil, monster x mediator, mogeko castle, wadanohara and the great blue sea, nekopara, stardew valley, undertale, helltaker, team fortress 2, analog horror, eddsworld: the beggning and the friends.
 
 **anime & manga:**
-tokyo revengers, shiguang dailiren, fate, panties and stockings with garterbelt, madoka magica, chainsaw man, kill la kill; killeo baedeulo, gokurakugai sanbandori, how to fight, windbreaker, jeonjijeog dogja sijeom, tengoku daimakyou, codename: anastasia;
+tengoku daimakyou, shiguang dailiren, fate, panties and stockings with garterbelt, killeo baedeulo, sanbandori gokurakugai, viral hit, code name: anastasia.
 
 **i support ships:**
-jjk: sukuita, sukume, fushiita;; hsr: phaistelle, phaidei, castordei, sampkle;; gi: chiscara, scarabedo, ew: tordedd (and maybe I'll remember more.)
+sukuita, fushiita, phaistelle, phaidei, castordei, sampkle, scarabedo, scararina, wriovia, huxiao, tordedd. (I'll list them later if I remember.)
 
-## DO NOT INTERACT, IT YOU:. 👀
-<div id="header" align="left">
-⤷ все, что связано с филиями, жив7дерство, г2м7фобия, ин7цест (исключнеие: сукуита = сукуна/итадори), романтизация псих.расстройств, обесценивание чужих проблем, вкусов, предпочтений людей и т.д., намеренный триггер.
+**i don't support ships:**
+sukufushi, sukurozu, sukugo (sorry but just no.), inuokko, phairene, sunturine, renheng, ciphlaea, zhongchi, chliyuu, tomtord, tordmatt. (I'll list them later if I remember.)
 
-⤷ анти-селфшипперы/осканонщики, антисы, антишипперы, канон-в7йны.
+## DO NOT INTERACT, IT YOU: 🌹
 <div id="header" align="left">
+⤷ все, что связано с филиями, поддержка жив@дерства, г@м@фобия, гетерофобия, ин7цест (исключение: сукуита = сукуна/итадори), поддержка тр7нсов & небинарные персоны, романтизация псих.расстройств без прямых доказательств со справками, обесценивание и игнорирование чужих проблем, вкусов и предпочтений людей и т.д, люди, использующие фемитинивы, женоненавистничество, с7ксизм, разжигание ненависти гендерной, расовой идентичности, пересечение границ (если вы не уважаете мои границы, тогда я и не буду уважать ваши границы) ;; приписывайте персонажам ориентацию, не умеете открывать рот и решать проблемы по взрослому, активно участвуете в шипп-дискуссии и имеете только одну позицию в сторону пейринга. 
   
-⤷ собственники, которые запрещают поддерживать дабблов.
-<div id="header" align="left">
-  
-⤷ не общайтесь со мной, если вы поддерживаете сукуфуши (сукуна/мегуми) & сукуго (сукуна/годжо) & сукуродзу (сукуна/йородзу) и фаенирены (фаенон/кирена), однако, не упоминайте при мне в любых проявлениях, ибо с таких пейрингов триггерюсь.
+⤷ из перечисленных **ДНИ** не общайтесь со мной, если вы поддерживаете определенные пейринги, однако, не упоминайте при мне в любых проявлениях, ибо эти пейринги мне некомфортны и могу словить триггер.
 
 <div id="header" align="left">
 касательно pony town: не помогаю с лимитом, не дарю саппорт просто так.
